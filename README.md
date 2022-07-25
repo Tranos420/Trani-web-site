@@ -25,12 +25,12 @@ https://prnt.sc/4UkwNyaL-Fqo
 https://prnt.sc/Stl8mCG-yMSI
 https://prnt.sc/TyYMwrp2eYZN
 https://prnt.sc/82CjTQKkcrg2
-https://prnt.sc/zp63CtCyS4D_
+https://prnt.sc/lVOAqYg4uaMs
 https://prnt.sc/Qgvq06HWTaS5
 https://prnt.sc/DAXuWhdCCQ0Z
 
 
-Tracosoft Company production
+Tracosoft Company production.
 
 
 
