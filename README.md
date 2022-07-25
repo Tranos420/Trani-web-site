@@ -13,7 +13,21 @@ Daca doriti sa vedeti cu certitudine cum arata codul pe pagina aveti acest link:
 Oricum, recomand sa folositi aceasta versiune pentru examinare: https://xd.adobe.com/view/aabb03a9-eda5-4f8d-8106-112bf8adea69-ffe8/?fullscreen
 Enjoy si sper sa va placa
 
-
+Screenshots, behind the scene, dovezi : https://prnt.sc/-bSzBH-m7_dY
+https://prnt.sc/3hiVS_xL_s1X
+https://prnt.sc/OlSS9iCVBiiZ
+https://prnt.sc/LMb3GGcfEmVc
+https://prnt.sc/2RmT_4JzVjkt
+https://prnt.sc/UF748vQku1Nq
+https://prnt.sc/0FiCahL8tAAH
+https://prnt.sc/WsMuW89JP9Ik
+https://prnt.sc/4UkwNyaL-Fqo
+https://prnt.sc/Stl8mCG-yMSI
+https://prnt.sc/TyYMwrp2eYZN
+https://prnt.sc/82CjTQKkcrg2
+https://prnt.sc/zp63CtCyS4D_
+https://prnt.sc/Qgvq06HWTaS5
+https://prnt.sc/DAXuWhdCCQ0Z
 
 
 Tracosoft Company production
