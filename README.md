@@ -31,6 +31,8 @@ https://prnt.sc/82CjTQKkcrg2
 https://prnt.sc/lVOAqYg4uaMs
 https://prnt.sc/Qgvq06HWTaS5
 https://prnt.sc/DAXuWhdCCQ0Z
+https://prnt.sc/bLMYI-OpPd_j
+https://prnt.sc/bMlq3VYBUuDp
 
 
 Tracosoft Company production.
