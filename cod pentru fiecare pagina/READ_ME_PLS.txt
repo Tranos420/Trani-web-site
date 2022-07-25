@@ -1,0 +1,1 @@
+Folositi aplicatia visual studio code, nu deschideti pe chrome!
